@@ -5,6 +5,7 @@ some books/articles i have readed
 ## 2016.11
 1. 👍上帝之鞭 by 王族
 2. 😜虚无的十字架 by 东野圭吾
+3. 😑我读 by 梁文道
 
 ## 2016.10
 1. 😀极客电台，谁动了我的网络资产 by 王亚平
@@ -14,4 +15,6 @@ some books/articles i have readed
 5. 👍最好的告别:关于衰老与死亡，你必须知道的常识 by 阿图•葛文德(Atul Gawande)
 
 ## 2016.9
-1. 
+1. 火花 by 又吉直树
+2. 遥远的小镇  by 谷口治朗
+ 
