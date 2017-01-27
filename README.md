@@ -3,7 +3,9 @@ some books/articles i have readed
 
 ## 2017.1
 1. 😃 尘土 by 贾行家
-2. 😃 杀死一只知更鸟 by 哈珀·李
+2. 👍 杀死一只知更鸟 by 哈珀·李
+3. 😳 The wasted time/罗曼蒂克消亡史 by 程耳
+4. 😳 银杏银杏 by 须兰
  
 ## 2016.12
 1. 😨所有人问所有人 by 韩寒 监制 / 「一个」工作室 主编 
