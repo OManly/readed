@@ -5,6 +5,7 @@ some books/articles i have readed
 1. 😳嫌疑人X的献身 by 东野圭吾
 2. 😳腾讯传 by 吴晓波
 3. 👍你一生的故事  by  特德·蒋 - 七十二个字母
+4. 😀PHP与Mysql程序设计
 
 ## 2017.1
 1. 😃 尘土 by 贾行家
