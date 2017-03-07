@@ -2,7 +2,8 @@
 some books/articles i have readed
 
 ## 2017.3
-1. 文学回忆录(上) by 木心讲述 
+1. 👍文学回忆录(上) by 木心讲述 
+2. 👍乡土中国 by 费孝通
 
 ## 2017.2
 1. 😳嫌疑人X的献身 by 东野圭吾
