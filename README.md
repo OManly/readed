@@ -2,6 +2,7 @@
 some books/articles i have readed
 ### 2017.8
 1. 👍谁在世界中心 by 温骏轩
+2. 👍败坏了哈德莱堡的人 by 马克·吐温
 
 ### 2017.6
 1. 👍人性的弱点 by 戴尔.卡耐基
