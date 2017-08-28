@@ -4,6 +4,8 @@ some books/articles i have readed
 ### 2017.8
 1. 👍菜场经济学 by 财上海
 2. 👍风景 by 方方
+3. 👍方方作品精选 by 方方
+4. 龙头凤尾 by 马家辉
 
 ### 2017.7
 1. 👍谁在世界中心 by 温骏轩
