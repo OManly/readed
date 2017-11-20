@@ -79,6 +79,6 @@ some books/articles i have readed
 5. 👍最好的告别:关于衰老与死亡，你必须知道的常识 by 阿图•葛文德(Atul Gawande)
 
 ## 2016.9
-1. 火花 by 又吉直树
-2. 遥远的小镇  by 谷口治朗
+1. 👍火花 by 又吉直树
+2. 👍遥远的小镇  by 谷口治朗
  
