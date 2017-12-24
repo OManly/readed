@@ -3,6 +3,7 @@ some books/articles i have readed
 
 ### 2017.12
 1. 👍抗战时代生活史 by 陈存仁
+2. 👍“鬼子”来了：现代中国之惑 by 杨奎松
 
 ### 2017.11
 1. 👍简单逻辑学 by 麦克伦尼
