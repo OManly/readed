@@ -1,6 +1,10 @@
 # readed
 some books/articles i have readed
 
+
+### 2018.8
+1. 👍前方的路 by 阮一峰
+
 ### 2018.5
 1. 货币银行学 
 
