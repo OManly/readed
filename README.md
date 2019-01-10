@@ -1,6 +1,8 @@
 # readed
 some books/articles i have readed
 
+### 2019.1
+1. 白鹿原 by 陈忠实
 
 ### 2018.8
 1. 👍前方的路 by 阮一峰
