@@ -6,6 +6,7 @@ some books/articles i have readed
 2. 👍晚来寂静 by 李海鹏
 3. 👍爱的艺术 by 艾·弗洛姆
 4. 👍活下去的理由 by 马特·海洛
+5. 👍步履不停 by 是枝裕和
 
 ### 2019.2
 1. 👍海军的战略与文化 by 罗杰·W.巴尼特
