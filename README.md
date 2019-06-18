@@ -1,8 +1,10 @@
 # readed
 some books/articles i have readed
 
+
 ### 2019.6
-1.  👍叶:百年动荡中的一个中国家庭
+1. 👍叶:百年动荡中的一个中国家庭 by 周锡瑞（Joseph W. Esherick）
+2. 👍医生的修炼 by 阿图•葛文德
 
 ### 2019.5
 1. 👍历史经济变革得失 by 吴晓波
