@@ -5,6 +5,8 @@ some books/articles i have readed
 ### 2019.7
 1. 👍矿车 by 芥川龙之介
 2. 👍白雪乌鸦 by 迟子建
+3. 😳环绕我们的海洋 by 蕾切尔•卡逊
+4. 👍北方的空地 by 杨柳松
 
 ### 2019.6
 1. 👍叶:百年动荡中的一个中国家庭 by 周锡瑞（Joseph W. Esherick）
