@@ -7,6 +7,7 @@ some books/articles i have readed
 2. 👍白雪乌鸦 by 迟子建
 3. 😳环绕我们的海洋 by 蕾切尔•卡逊
 4. 👍北方的空地 by 杨柳松
+5. 👍给四月的信 by 艾伦•麦克法兰
 
 ### 2019.6
 1. 👍叶:百年动荡中的一个中国家庭 by 周锡瑞（Joseph W. Esherick）
