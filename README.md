@@ -2,7 +2,7 @@
 some books/articles i have readed
 
 ### 2021.5
-1. 遥远的天国 by 豆豆
+1. 👍遥远的天国 by 豆豆
 
 ### 2020.2
 1. 👍蒙古帝国与其漫长的后世 by 杉山正明 译者 乌兰
