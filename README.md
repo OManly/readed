@@ -3,6 +3,7 @@ some books/articles i have readed
 
 ### 2021.7
 1. 😳有所不为的反叛者  批判、怀疑与想象力 by 罗新
+2. 👍天地九重 by 杨利伟
 
 ### 2021.6
 1. 👍天幕红尘 by 豆豆
