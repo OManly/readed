@@ -1,6 +1,9 @@
 # readed
 some books/articles i have readed
 
+### 2022.10
+1. 👍大医破晓篇 by 马伯庸
+
 ### 2022.2
 1. 人生海海 by 麦家
 
