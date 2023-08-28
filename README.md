@@ -1,6 +1,9 @@
 # readed
 some books/articles i have readed
 
+### 2023.8
+1. 👍人间一格
+
 ### 2023.3
 
 1. 👍大医日出篇 by 马伯庸
